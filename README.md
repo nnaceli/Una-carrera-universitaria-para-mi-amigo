@@ -21,3 +21,6 @@
   - Regardless of whether the university is public or private
   - Good level of mathematics.
   - 100% virtual or near the neighborhood of Once CABA
+
+
+  Link: https://drive.google.com/drive/folders/1eiEkl-g3PU0YxkvWOdRODRXJpjpgX42i
